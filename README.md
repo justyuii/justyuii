@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello, world!! My name is Yui, I'm 18 and I am currently studying IT Management. It's nice to meet you. 𖹭
+Hello, world!! My name is Yui, I'm 19 and I am currently studying IT Management. It's nice to meet you. 𖹭
 
 
 # 💻 Tech Stack:
